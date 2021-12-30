@@ -7,6 +7,9 @@ Choro Door
 
 
 
+![jamming project](https://user-images.githubusercontent.com/87598302/147712097-2a598a41-678a-44ad-9c93-03824e35f663.png)
+
+
 
 
 
